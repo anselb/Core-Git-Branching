@@ -19,6 +19,8 @@ Ansel had heard the sound before, but today there was a new sound, sort of a cro
 Normally Ansel would leave well enough alone, but he was worried that an animal might escape.
 He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a zoo keeper but got no response.
 The smell of the of the zoo was intense and alive.
+Ansel tried to shout for the zookeeper again, but this time, the zookeeper popped out of nowhere.
+Unfortunately, the zookeeper was a zombie, so Ansel had to take care of him.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Ansel met the Unicorn King who granted him magic powers.
