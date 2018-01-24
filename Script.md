@@ -22,6 +22,8 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Ansel met the Unicorn King who granted him magic powers.
+Ansel went to the rehab center that he took the zombie zookeeper to and attempted to use his magic powers on the zombie.
+The zombie zookeeper turned back into human and everyone was happy.
 The end.
 
 ## Cast
